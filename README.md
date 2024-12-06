@@ -1,4 +1,4 @@
-👋 Hi, I’m @zetarina
+👋 Hi, I’m @zetarina aka Zet.
 
 👀 I’m interested in anime, manhwas, game development, and AI development.
 
